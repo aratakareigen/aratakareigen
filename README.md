@@ -1,2 +1,2 @@
-![ezgif-69561a125faf2b](https://github.com/user-attachments/assets/bfb66f8f-f865-494e-bada-d3de542529dc)
-haha reigen you cucked my oc
+![ezgif-88101be5011307](https://github.com/user-attachments/assets/78683c03-8b3f-45a8-b3d9-26ea88ee33cb)
+haha arataka reigen you cucked my oc
