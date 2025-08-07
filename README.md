@@ -1,1 +1,2 @@
-![ezgif-473364abea0d8c](https://github.com/user-attachments/assets/9092f598-e814-4194-9f64-11414175d953)
+![ezgif-69561a125faf2b](https://github.com/user-attachments/assets/bfb66f8f-f865-494e-bada-d3de542529dc)
+haha reigen you cucked my oc
